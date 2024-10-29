@@ -10,7 +10,7 @@
 > #### Contact information:
 >
 > Phone: +7 999 000 00 00
-> E-mail: 000000@gmail.com  
+> E-mail: 000000@gmail.com
 >  Telegram: @janelame
 > Discord: sima_40069
 
