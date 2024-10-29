@@ -1,1 +1,1 @@
-https://simuzar.github.io/rsschool-cv-
+https://simuzar.github.io/rsschool-cv
